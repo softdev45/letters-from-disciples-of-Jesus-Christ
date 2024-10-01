@@ -3,10 +3,15 @@ I am the gate; whoever enters through me will be saved. He will come in and go o
 (JOH 10: 8-9)
 
 REV 19 13: He is dressed in a robe dipped in blood, and his name is the Word of God.
+
 JOH 17 3: Now this is eternal life: that they may know you, the only true God, and Jesus Christ, whom you have sent.
+
 REV 3 18: I advise you to buy gold from me--gold that has been purified by fire. Then you will be rich.
 And also buy white garments so you will not be shamed by your nakedness. And buy ointment for your eyes so you will be able to see.
+
 JOH 6 63: The Spirit gives life; the flesh counts for nothing. The words I have spoken to you are spirit and they are life.
+
+
 JOH 15 3: Now ye are clean through the word which I have spoken unto you.
 
 EXO 34 6-7
